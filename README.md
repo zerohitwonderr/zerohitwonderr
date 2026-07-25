@@ -5,4 +5,3 @@
 <p align="center"> i am not very social as i'm an introvert, but i do love to make friends .
 <p align="center"> feel free to interact whenever , i don't mind . but do be respectful and patient with me because of my autism . i also kind of just lurk in pt but trust me im friendly .
 <p align="center"> my dc is zerohitwonderr , you can talk with me on there as well , and more info abt me is on the links on this profile ˊ ᗜ ˋ
-**still kind if a wip**
